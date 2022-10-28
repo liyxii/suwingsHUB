@@ -1,3 +1,3 @@
 git add .
-git commit -m "ĞÂÔöÍ¼Æ¬"
+git commit -m "upload file"
 git push
