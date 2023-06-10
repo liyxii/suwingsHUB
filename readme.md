@@ -2,7 +2,7 @@
 **警告：本存储库可能含有NSFW的言论**
 > 本储存库仅供娱乐，禁止任何非法用途，没有任何攻击人的意思  
 > 
-在线浏览/官方地址请查看：[https://hub.liyxi.tk/%E5%8F%8C%E7%BE%BD_951092158](https://hub.liyxi.tk/%E5%8F%8C%E7%BE%BD_951092158)  
+在线浏览/官方地址请查看：[https://suwings.qwq.baby](https://suwings.qwq.baby)  
 
 ## 这是什么？  
 
